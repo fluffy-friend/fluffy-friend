@@ -1,5 +1,5 @@
 Hello! I am Shroomie! And welcome to my profile! I like to draw and write.
-I'm into a variety of fandoms. I am typically AFK.
+I'm into a variety of fandoms.
 You can talk to me, but you will be ignored (unless your a friend.)
 
 <!---
