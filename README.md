@@ -4,6 +4,8 @@ Hello! I am Shroomie! And welcome to my profile! I like to draw and write.
 
 I am 20 yrs old! :D 
 
+[I have a strawpage!](https://scaryfurry.straw.page/)
+
 ------
 
 BYI:
