@@ -1,8 +1,8 @@
 # 💜 INTRO 💜
 
-Hello.. i am Yuri.
+Hello, i am Yuri.
 
-I am 20 yrs old! :D 
+I am 20 yrs old. :D 
 
 [I have a strawpage!](https://scaryfurry.straw.page/)
 
