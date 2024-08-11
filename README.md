@@ -1,6 +1,6 @@
-# INTRO
+# 💜 INTRO 💜
 
-Hello! I am Shroomie! And welcome to my profile! I like to draw and write.
+Hello.. i am Yuri.
 
 I am 20 yrs old! :D 
 
